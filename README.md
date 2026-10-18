@@ -2,6 +2,5 @@
 
 🕯 nyxii  /  billy 
 🐾 𓎟𓎟  int freely acc𑄝unt 4 ponytown
-🚫 dni list on strawpage .
-🔪 billy shears halfkin 
+🚫 dni list on strawpage . 
 🪲 beatles favs : billy shears , john lennon , paul . ꒱
